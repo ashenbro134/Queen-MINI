@@ -1,2 +1,2 @@
-# Queen-MINI
+# 💝Queen-MINI💝
 💖A whatsapp Bot Multi Device💖
